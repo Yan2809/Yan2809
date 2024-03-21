@@ -1,0 +1,9 @@
+- 👋 Hi, I’m @Yan2809
+- 🇧🇷 Moro em São Paulo - SP
+- 📚 Estudante de Desenvolvimento de Sistemas na ETEC Camargo Aranha - 3/3
+- 🚀 Explorando o mundo da programação
+- 👀 Interesse em IA e desenvolvimento de jogos
+- 🌍 Fluente em inglês e aprendendo francês
+- 📫 Entre em contato: ybarutti2809@gmail.com
+- 🔍 Procurando por oportunidades de aprendizado e crescimento
+- 🎮 Gosto de jogar nas horas vagas
